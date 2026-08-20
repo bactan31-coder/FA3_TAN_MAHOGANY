@@ -1,1 +1,0 @@
-# FA3_TAN_MAHOGANY
